@@ -1,4 +1,4 @@
-# 
+# Élite dex sandwiched bot plugins para Mac OS | Actualizado dex sandwiched bot plugins para PC Windows. Con conectividad Web3 y comercio de futuros — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
